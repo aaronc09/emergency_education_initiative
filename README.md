@@ -1,3 +1,5 @@
+Emergency Education Initiative
+
 ***Mission Statement:***
 
 The Emergency Education Initiative specializes in equipping local community members with life-saving skills and informed decision-making during health emergencies. We aim to make civilian emergency responses more accessible and practical for all individuals. Our mission is to spread knowledge of medical emergencies that include performing CPR, indicating signs of stroke, and knowing what to do in diabetic emergencies. These are just a few examples of the emergency medical protocols we are committed to sharing throughout our community in order to provide for a safer environment. 
